@@ -1,2 +1,1 @@
-About - 
-Just a digital rhyme a clock
+About - Just a digital rhyme a clock
